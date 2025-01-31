@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **marediya.shabdarali@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/157H2T5YR37l2TeIN_GhJlnVHHvwsqBXZ/view?usp=drivesdk](https://drive.google.com/file/d/157H2T5YR37l2TeIN_GhJlnVHHvwsqBXZ/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1a3NRDkCaDlU00nPnsR2PxG4zzqiUxrtU/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
